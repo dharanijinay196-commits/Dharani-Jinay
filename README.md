@@ -1,6 +1,6 @@
 # Dharani Jinay | Data Scientist
 
-📍 India | 📧dharanijinay196@gmail.com | <img width="25" height="25" alt="image" src="https://github.com/user-attachments/assets/a4eb8245-b1a7-42dd-a032-65c9352d2a08" />
+📍 India | 📧jinaydharani19@gmail.com | <img width="25" height="25" alt="image" src="https://github.com/user-attachments/assets/a4eb8245-b1a7-42dd-a032-65c9352d2a08" />
 https://www.linkedin.com/in/dharani-jinay-800b51218?utm_source=share_via&utm_content=profile&utm_medium=member_ios | 💻https://github.com/dharanijinay196-commits
 ---
 
